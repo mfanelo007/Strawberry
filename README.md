@@ -1,1 +1,1 @@
-# Strawberry
+# Strawberry flavour
